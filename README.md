@@ -1,4 +1,6 @@
 <p align="center">
-  hi how was moths <br> <br> <img src="https://files.catbox.moe/efp0hk.PNG"/>
-
+$$\ i'm\ just\ feeling\ so\ scene,\ yeah,\ and\ you're\ giving\ john\ cena!$$
 </p>
+
+<p align="center">
+<img src="https://files.catbox.moe/umi1zb.png"/>
